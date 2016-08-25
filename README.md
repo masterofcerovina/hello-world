@@ -1,2 +1,3 @@
 # hello-world
-nista bitno
+znas ti mala ko sam ja
+poyyy
